@@ -1,1 +1,1 @@
-Pasta onions tomatoes garlic basil
+Pasta onions tomatoes garlic basil salt pepper
